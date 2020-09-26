@@ -1,1 +1,1 @@
-# SMU-EETS8357-Prajakta
+# SMU Lyle School of Engineering
